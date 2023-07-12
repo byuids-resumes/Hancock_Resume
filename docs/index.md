@@ -19,7 +19,7 @@ Software Engineer
 __Brigham Young University - Idaho__, Rexburg, ID
 
 - 3.98 GPA
-
+- Some scholarship recipient
 
 ## Related Experience
 
